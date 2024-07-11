@@ -14,6 +14,5 @@
 
 ---
 
-https://github.com/Nikillanr/Manas_Last_Task_Website/assets/73609037/6508d76c-0bcb-4ee1-9f3d-6b4960de7416
 
 
